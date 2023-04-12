@@ -19,4 +19,9 @@ Worked on this as both Designer and Developer
 ### Others
 - CTMD - https://ctmd.ai/
 - Farmkrip - https://farmkrisp.com/
+- Classico - https://m.classicoindia.com/
+
+
+### Ecommerce 
 - QNF - https://qualitynaturalfood.com/
+- Arihant - https://arihantlab.com/
