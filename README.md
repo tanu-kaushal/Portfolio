@@ -6,6 +6,7 @@
 
 #### Real Estate 
 - Jubilee CLio - https://jubileeclio.in/
+- One Group - https://onecity.in/
 - The Wellness city - https://www.thewellnesscity.in/
 - PLPB Group - https://www.plpb.in/
 
